@@ -7,4 +7,4 @@ Make sure not to over use it your ip can get banned you will have to wait for a 
 for any question
 
 https://facebook.com/alizaibhassan.azh
-youtube.com/syedalizaibhassan
+https://youtube.com/syedalizaibhassan
